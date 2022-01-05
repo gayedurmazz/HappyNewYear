@@ -1,2 +1,2 @@
 # HappyNewYear
-Just Fun :)
+Fancy new year tree :)
